@@ -1,1 +1,0 @@
-# buki1.github.io
